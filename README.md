@@ -1,2 +1,2 @@
 Rynna Alexa B. Balid
-### Rynna
+### (Very) Simple Anime Style Anatomy
