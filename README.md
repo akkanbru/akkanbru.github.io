@@ -1,2 +1,3 @@
 Rynna Alexa B. Balid
-### **(Very) Simple Anime Style Anatomy**
+### **How to Draw Anime, For The Very Beginners**
+## **(Very) Simple Anime Style Anatomy**
