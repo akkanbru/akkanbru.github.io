@@ -6,8 +6,9 @@ Rynna Alexa B. Balid
 - Christ
 - Don't Kill
 - Flowers, Mountains, and Funerals
-- God, please () me, a Monster.
+- God, please () me, a Monster
 - Dogdog
+  
 ---
 ## PowapowaP
 ### Rest in Peace
@@ -16,6 +17,7 @@ Rynna Alexa B. Balid
 - Palette ni wa Kimi ga Ippai
 - Uta o Utau Hito
 - sayonarawoiwazuni
+
 ---
 ## Parsley Onuma
 - Aoku
