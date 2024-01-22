@@ -20,7 +20,7 @@ Rynna Alexa B. Balid
 
 ---
  Parsley Onuma
-- Aoku
+- Blueness
 - Poolside
 - Colors
 - Corruption
