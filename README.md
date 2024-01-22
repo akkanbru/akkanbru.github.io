@@ -5,7 +5,7 @@ Rynna Alexa B. Balid
 **Abuseken, PowapowaP, Parsley Onuma**
 
 ---
- Abuseken
+ **Abuseken**
 - Christ
 - Don't Kill
 - Flowers, Mountains, and Funerals
@@ -13,7 +13,7 @@ Rynna Alexa B. Balid
 - Dogdog
   
 ---
- PowapowaP
+ **PowapowaP**
 - Yume no Manimani
 - Okawari o Doozo
 - Palette ni wa Kimi ga Ippai
@@ -21,7 +21,7 @@ Rynna Alexa B. Balid
 - sayonarawoiwazuni
 
 ---
- Parsley Onuma
+ **Parsley Onuma**
 - Blueness
 - Poolside
 - Colors
