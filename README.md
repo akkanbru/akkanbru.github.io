@@ -1,7 +1,7 @@
 Rynna Alexa B. Balid
 
 ---
-**My Top Songs From My Favourite Vocaloid Producers;**
+**My Favourite Songs From My Favourite Vocaloid Producers;**
 **Abuseken, PowapowaP, Parsley Onuma**
 
 ---
@@ -14,11 +14,11 @@ Rynna Alexa B. Balid
   
 ---
  **PowapowaP**
-- Yume no Manimani
-- Okawari o Doozo
-- Palette ni wa Kimi ga Ippai
-- Uta o Utau Hito
-- sayonarawoiwazuni
+- At the Mercy of Dreams
+- Help Yourself to Seconds
+- My Palette is Full of You
+- Someone Who Sings Songs
+- Without Saying Goodbye
 
 ---
  **Parsley Onuma**
@@ -26,4 +26,4 @@ Rynna Alexa B. Balid
 - Poolside
 - Colors
 - Corruption
-- Suimenka
+- Beneath the Surface
