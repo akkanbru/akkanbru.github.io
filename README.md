@@ -1,7 +1,7 @@
 Rynna Alexa B. Balid
 
 ---
-**My Favourite Songs From My Favourite Vocaloid Producers;**
+**List of Songs From My Favourite Vocaloid Producers;**
 **Abuseken, PowapowaP, Parsley Onuma**
 
 ---
